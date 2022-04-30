@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rajkrhunter7
+- 👀 I’m mad about football
+-i love doing music and to gaze upon the moonlight breathing heavy and cold breeze.
